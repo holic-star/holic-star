@@ -1,4 +1,4 @@
-## Wow you actually check it :D
+## Hey there :D
 > Risky Venus
 全部差し出す覚悟で
 もっと抱きしめあうのさ
