@@ -19,7 +19,9 @@ all my ponies are C+H 😉.
 ### Before you interact
 I'm not a minor but I know the difference between talking about personal life vs about the series I like. If you're comfortable with it then go ahead.
 Also please tell me if I'm being awfully close, I'm kinda awkward.
-I never do accidental boop-ing, if I boop you that means I like your skin 😄. I won't boop you if you have DNIUF/TD in your name or having the busy status on (⛔)
+I never do accidental boop-ing, if I boop you that means I like your skin 😄. I won't boop/interact with you if you have DNIUF/TD in your name.
+
+If you have the busy status on (⛔) I might be reluctant.. (unless you're in my friendlist)
 
 ### Before add friend!!
 Offline mode is enabled so I won't appear in your friendlist and my name won't be green..
