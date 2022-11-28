@@ -11,7 +11,7 @@ any pronouns / 18+ / I'm pardi, but calling me with the pony's name is fine
 I love to draw, listening to vocaloid/Vtubers/SynthV/Utau/Utaite, and reading books 😄
 
 Feel free to boop or starting conversations with me! As long as you're not rude and I'm not AFK
-I'll definitely reply :>
+I'll definitely reply
 
 I be AFK often in-game.
 all my ponies are C+H 😉.
@@ -19,7 +19,9 @@ all my ponies are C+H 😉.
 ### Before you interact
 I'm not a minor but I know the difference between talking about personal life vs about the series I like. If you're comfortable with it then go ahead.
 Also please tell me if I'm being awfully close, I'm kinda awkward.
-I never do accidental boop-ing, if I boop you that means I like your skin 😄. I won't boop/interact with you if you have DNIUF/TD in your name.
+I never do accidental boop-ing, if I boop you that means I like your skin. 
+
+I won't boop/interact with you if you have DNIUF/TD in your name (I respect the wish of DNIUF, but not TD bcs it's an actual disorder and such a term shouldn't be used lightly unless you actually have it. Either way I won't be able to interact with you, so I'm just saying.) 
 
 If you have the busy status on (⛔) I might be reluctant.. (unless you're in my friendlist)
 
