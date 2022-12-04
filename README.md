@@ -65,6 +65,10 @@ I don't like conversations that I can't follow.
 I have no characters I particularly dislikes. Mori Ougai is the closest one.
 
 
+# Am I insanse enough to finish this Enstars fangame?
+place your bet
+[ss](pixel eden screenshot.png)
+
 
 <!---
 pardi-real/pardi-real is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
