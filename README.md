@@ -67,7 +67,7 @@ I have no characters I particularly dislikes. Mori Ougai is the closest one.
 
 # Am I insanse enough to finish this Enstars fangame?
 place your bet
-[ss](pixel eden screenshot.png)
+![ss](mypixel.png)
 
 
 <!---
