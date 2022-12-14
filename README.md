@@ -17,9 +17,9 @@ I be AFK often in-game.
 all my ponies are C+H 😉.
 
 ### Before you interact
-I'm not a minor, but if you're comfortable with it then go ahead. I won't talk about personal life unless you start it first. I'll never pry, just replying.
+I'm not a minor, but if you're comfortable with it then go ahead.
 Also please tell me if I'm being awfully close, I'm kinda awkward.
-I never do accidental boop-ing, if I boop you that means I like your skin. 
+I never do accidental boop-ing, if I boop you that means I like your skin. No need to boop back but it's always appreciated :} 
 
 I won't interact with you if you have DNIUF/TD in your name (I respect the wish of DNIUF, but not TD bcs it's an actual disorder and such a term shouldn't be used lightly unless you actually have it. Either way I won't be able to interact with you, so I'm just saying.) 
 
